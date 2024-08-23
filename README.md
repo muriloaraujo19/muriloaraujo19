@@ -4,4 +4,4 @@ muriloaraujo970@gmail.com
 cursando o ensino médio 
 Formações= adiministração-senai-3 semanas 
            T.I-senai-3 semanas
-Busco
+Busco entrar no mercado de trabalho.
